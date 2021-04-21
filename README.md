@@ -14,7 +14,7 @@ La scrittura e la lettura mi hanno salvato l'adolescenza; Seneca, Epitteto e Mar
 
 Le relazioni sentimentali mi hanno chiarito molte idee. Mi piacciono le donne e le relazioni aperte; con le relazioni chiuse invece ho chiuso. Amo spontaneamente e profondamente, odio con leggerezza e superficialmente.
 
-Ho una relazione di lunghissima data con la cannabis.
+Ho una relazione di lunghissima data con la cannabis, che non ho mai nascosto a nessuno.
 
 Sono un gran risparmiatore, un modesto investitore, un ambizioso aspirante imprenditore.
 
